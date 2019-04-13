@@ -1,0 +1,1 @@
+Official web-site of Mafia Punks mod. By Smelson and Mishur (C) 2019
